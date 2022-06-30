@@ -1,3 +1,3 @@
-#Turma de Quinta feira#
-#JOGOS#
+# Turma de Quinta feira #
+# JOGOS #
 👩🏽👩🏽‍🦱👨🏽‍🦳👩🏽‍🦳🌭🍟🚕🚓🚒🚑🚍
