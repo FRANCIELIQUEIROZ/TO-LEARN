@@ -1,4 +1,4 @@
 # Turma de Quinta feira #
 # JOGOS #
 👩🏽👩🏽‍🦱👨🏽‍🦳👩🏽‍🦳🌭🍟🚕🚓🚒🚑🚍
-ge-programacao-2022
+ge-educacao-2022
